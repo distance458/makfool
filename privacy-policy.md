@@ -1,4 +1,4 @@
-Privacy Policy for makfool وصلني
+Privacy Policy for makfool مكفول
 At makfool.com, accessible from info@makfool.com, one of our main priorities is the privacy of our visitors. This Privacy Policy document contains types of information that is collected and recorded by makfool.com and how we use it.
 
 If you have additional questions or require more information about our Privacy Policy, do not hesitate to contact us.
